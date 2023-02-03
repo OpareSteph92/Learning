@@ -1,3 +1,3 @@
 # Learning
 
-Breakthrough strategy
+Breakthrough strategy!
